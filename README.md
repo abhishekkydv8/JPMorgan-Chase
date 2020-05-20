@@ -12,4 +12,4 @@ https://www.insidesherpa.com/virtual-internships/R5iK7HMxJGBgaSbvk
 
 For any queries/doubts:
 
-✉️ abhishekkydv8@gmail.com👍
+✉️ abhishekkydv8@gmail.com
